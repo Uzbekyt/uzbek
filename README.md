@@ -1,1 +1,1 @@
-# uzbek.github.io
+# uzbek
